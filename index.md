@@ -93,4 +93,4 @@ For privacy-related questions, data requests, or account-deletion assistance, co
 
 **MeraCounter Support**
 
-Email: **YOUR_SUPPORT_EMAIL**
+Email: **nikhilmanthena11@gmail.com**
